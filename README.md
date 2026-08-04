@@ -2,7 +2,7 @@
 ˖ ݁♬⋆.˚𝄞          ૮₍ ´ ꒳ `₎ა🫧
 風早くんと私の間には…壁なんてないんだってわかった。風早くんは、その笑顔ひとつで、簡単にそれを壊してくれるから。
                                                                ⋆˙⟡kuronuma sawako"!
-[![IMG-2626.jpg](https://i.postimg.cc/x8Xnz4c5/IMG-2626.jpg)](https://postimg.cc/wRYCKF5R)
+[![FAB803E7-80EE-458F-AB95-347928BA161A.gif](https://i.postimg.cc/q7SMJrmc/FAB803E7-80EE-458F-AB95-347928BA161A.gif)](https://postimg.cc/cK7NhpG6)
 
 気づいてないのか？俺を動かしてるのは…君だよ。
                                                    о( ˶^▾^˶ ) kazehaya shota"!!
